@@ -1,0 +1,1 @@
+# indoor-plant_02_-2.fbx
